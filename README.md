@@ -7,3 +7,7 @@ NOTE: EVEN IF YOU ARE CONFIDENT ABOUT OPENING THE SOUNDS AND IMAGES FOLDERS AND 
 
 © 2020 Yuvraj Motiramani.
 All Rights Reserved.
+
+GET THIS APP FOR WINDOWS AT:
+https://intricate.itch.io/calc-x-calculator-redefined
+
